@@ -1,3 +1,0 @@
-# ayidichu
-# ayidichu
-# atem
